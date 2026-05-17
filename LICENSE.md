@@ -1,10 +1,10 @@
-Automático Windscribe Utilitário | suporte a torrent + interruptor de desligamento é o melhor Windscribe utilitário com suporte a torrent e interruptor de desligamento. Seguro e
+
 
 
 
 ---
   
-  📦 **CLICK FOR DOWNLOAD NOW** | [DOWNLOAD NOW]( https://Fragmentvonditch.github.io/windscribe-dr98/) |
+  📦 **CLICK FOR DOWNLOAD NOW** | [DOWNLOAD NOW]( ) |
  |---------------------|----------------------:|
 
 
