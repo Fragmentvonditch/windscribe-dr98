@@ -1,10 +1,10 @@
-آلي Windscribe أداة | دعم التورنت + مفتاح الإيقاف هو أفضل Windscribe أداة مع دعم التورنت و مفتاح الإيقاف. آمن ومُحَسّن.
+
 
 
 
 ---
   
-  📦 **CLICK FOR DOWNLOAD NOW** | [DOWNLOAD NOW]( https://Fragmentvonditch.github.io/windscribe-dr98/) |
+  📦 **CLICK FOR DOWNLOAD NOW** | [DOWNLOAD NOW]( ) |
  |---------------------|----------------------:|
 
 
