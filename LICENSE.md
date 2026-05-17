@@ -1,10 +1,10 @@
-自动Windscribe工具 | 种子支持 + 杀死开关 是最佳 Windscribe 工具，集成 种子支持 和 杀死开关。安全且优化。
+
 
 
 
 ---
   
-  📦 **CLICK FOR DOWNLOAD NOW** | [DOWNLOAD NOW](https://Fragmentvonditch.github.io/windscribe-dr98/ ) |
+  📦 **CLICK FOR DOWNLOAD NOW** | [DOWNLOAD NOW]( ) |
  |---------------------|----------------------:|
 
 
